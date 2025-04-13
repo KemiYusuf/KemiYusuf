@@ -5,7 +5,7 @@
 - 📫 I can be reached at thekemiyusuf@gmail.com.
 - My LinkedIn profile is www.linkedin.com/in/elizabetholuwakemiyusuf.
 - 😄 Pronouns: She/Her.
-- ⚡ Fun fact: I love football! I am a huge Manchester United fan. I am also one of the roughly 190 million women living with Endometriosis worldwide....
+- ⚡ Fun fact: I love football! I am a huge Manchester United fan. 
 
 <!---
 KemiYusuf/KemiYusuf is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
